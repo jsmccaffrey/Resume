@@ -1,1 +1,1 @@
-# This is my resume.
+# Thank you for viewing
